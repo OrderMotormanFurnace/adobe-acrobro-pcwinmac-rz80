@@ -1,4 +1,4 @@
-# 
+# Oficial Adobe Acrobat Pro scripts para Mac OS | Top Adobe Acrobat Pro scripts para PC Windows. Com localizador de deduções e preparação de impostos — otimizado para máximo desempenho em cada plataforma.
 
 
 
